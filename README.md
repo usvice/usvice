@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍💻 Developer in Progress <br>🚀 Tech Enthusiast<br>💡 Lifelong Learner  <br>🔥 Passionate about Code<br>🌱 Currently exploring: [Cyber Security & Ethical Hacking 🛡️💻]<br>⚡ Fun fact: [I like coding while listening to your music]<br>📌 "Code, Create, Conquer."<br>📫 Reach me at: [ig : @rafiqs4]<brdonet ges biar bisa jajan😋 https://saweria.co/usvice><br>
+👨‍💻 Developer in Progress <br>🚀 Tech Enthusiast<br>💡 Lifelong Learner  <br>🔥 Passionate about Code<br>🌱 Currently exploring: [Cyber Security & Ethical Hacking 🛡️💻]<br>⚡ Fun fact: [I like coding while listening to your music]<br>📌 "Code, Create, Conquer."<br>📫 Reach me at: [ig : @rafiqs4]<br>donet ges biar bisa jajan😋 https://saweria.co/usvice><br>
 
 
 # 💻 Tech Stack:
